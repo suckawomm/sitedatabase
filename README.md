@@ -5,7 +5,7 @@ http://an-2.com/
 https://www.yousuckass.com/
 https://www.freebooter.org/
 https://offersearch.info/b/?k=1874&pc=77987147&ct=27&b_tt=c_1874_0&st=irs%20debt%20forgiveness&kc=0&t2=zrpk&t3=&uuid=1812eb69-2076-4037-9814-6cf9ae853b4c&odata=MFNKZ0tQc0M5R1FvdU01SG9xMFZHdXR1SmJzanRzSS8
-
+http://stay.agency/
 
 
 Scam
@@ -49,6 +49,33 @@ http://fart.one/
 http://fuckit.com/
 http://fart.store/
 http://fart.games/
+http://stay.club/
+http://stay.info/
+http://stay.world/
+http://stay.house/
+http://stay.coupons/
+http://stay.best/
+http://stay.care/
+http://stay.cool/
+http://thats.cool/
+http://www.stay.mx/
+http://www.stay.la/
+http://stay.net.cn/
+http://stay.net.cn:8181/
+http://youre.net/
+http://youre.org/
+http://youre.me/
+http://www.youre.online/
+https://www.youre.it/
+http://right.app/
+http://left.com/
+http://rightient.com/
+http://rightwp.com/
+http://leftnright.com/
+http://leftq.com/
+http://rightified.com/
+http://rightally.com/
+http://righty.com/
 
 
 Utilities
@@ -58,6 +85,15 @@ https://minecraft.tools/en/tellraw.php
 http://patorjk.com/software/taag/#p=display&f=Big&t=Type%20Something%20
 https://malwat.ch/
 https://www.bearaudiotool.com/
+https://www.gamergeeks.nz/apps/minecraft/mob-generator
+https://tempemail.co/
+https://instantdomainsearch.com/
+https://mcstacker.net/
+https://colorize.fun/en/minecraft
+http://www.typehere.co/
+https://blog.malwarebytes.com/detections/
+https://www.trash-mail.com/inbox/
+https://crafting.thedestruc7i0n.ca/
 
 
 DDoS
@@ -69,6 +105,7 @@ https://instant-stresser.com/login
 https://asylumstresser.to/hub
 https://stormbypass.cc/panel/login.php
 https://anonboot.com/hub
+https://www.vbooter.pw/booter/login.php
 
 
 Account Generators
