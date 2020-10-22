@@ -77,6 +77,14 @@ http://leftq.com/
 http://rightified.com/
 http://rightally.com/
 http://righty.com/
+http://have.app/
+http://have.co/
+http://have.org/
+http://ww12.have.biz/
+https://have.church/
+http://have.group/
+https://have.partners/
+http://have.plus/
 
 
 Utilities
