@@ -6,19 +6,67 @@ https://www.yousuckass.com/
 https://www.freebooter.org/
 https://offersearch.info/b/?k=1874&pc=77987147&ct=27&b_tt=c_1874_0&st=irs%20debt%20forgiveness&kc=0&t2=zrpk&t3=&uuid=1812eb69-2076-4037-9814-6cf9ae853b4c&odata=MFNKZ0tQc0M5R1FvdU01SG9xMFZHdXR1SmJzanRzSS8
 http://stay.agency/
+http://musicalcompositionfly.com/
 
+Malware Samples
+
+
+Resources and Information Sites (not sorted)
+http://ww1.ca-shaw-phone.com/win/au/iinet/index2.php?ip=192.168.2.1&lpkey=15f67819596804cc54&uclick=xs46a6a9bl&sub1=20201120-0910-17c0-93f2-191c34d80002
+http://ww1.turboanalysis.net/survey/17683/source=565c4b03c479a2fe76159a1b/subid=565c4b03c479a2fe76159a1b&s1=/nrp=5e066c972a16d62a274d031d?sub1=20201120-0915-131e-883d-b6eb9b5e0990
 
 Error Pages
+https://start.book-district.com/au/o/epctinn7gohxxfbul1okhjb3eu30jr8et9lg6txbsh?ar_cid=5e17626bd4bfa900014a172f&ar_pid=20&nw_cid=1578590731.32-162750531-41447&nw_pid=apix34-chromeredirect.online&nw_fbp=&pf=&src=&gtm=
+https://wedonttakeamex.com/404
+https://cs.readermonthly.com/81695?ref=cld_lan_cslb_137&ref_id=fcd9d2f82f814e9da1c164f8248877e69ae6&sub_id=21167&extra5=
+https://computerrepair6464.weebly.com/
+
 
 
 Leaked IP Adresses
+106.220.106.141
+103.232.129.130
 
 
 Leaked Scammer Phone Numbers
 (661) 752-5863‬
 (833) 332-3666 
 (855) 878-3377
-
+1 (516) 453-6514
+0345262834
+02034323461
+7197823464
+7192154315
+7192454395
+7196576772
+7195813094
+7192491612
+7192151719
+7192942659
+7193561848
+7193561848
+7192800988
+8883840915
+7196576772
+7195813032
+(716) 404-5960
+952-686-6644
+3472528086
+510-313-1462
+18882223549
+18005247730
+18882223774
+18774971738
+18884559782
+180052434379
+1-877-255-1595
+18005725709
+12813698595
++1 (855) 340-7428
+914- 685-8043
+(888) 985-6983‬
++91 1141047226
+8886829764
 
 Redirects
 http://freesgift.com/ - redirects to https://521-gifts.com/
@@ -40,6 +88,7 @@ https://www.rewardzoneusa.com/?Flow=324FA50B-9BFD-D667-5508-2600D202E8636714D9A4
 https://europrizes-abc.com/grab/grab4sweepsubEN2/index.html
 https://win-gift.net/?source=&lp=55&country=TR&cid=&sourceid=&campaignid=&cpc=&browser=&device=&language=
 https://survey.phshoppers10.info/old/
+http://165.22.15.160/new16microsoftallbrowser/?phone=+1-%28888%29-606-0993#
 
 
 For Sale
