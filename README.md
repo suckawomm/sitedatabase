@@ -8,7 +8,24 @@ https://offersearch.info/b/?k=1874&pc=77987147&ct=27&b_tt=c_1874_0&st=irs%20debt
 http://stay.agency/
 
 
-Scam
+Error Pages
+
+
+Leaked IP Adresses
+
+
+Leaked Scammer Phone Numbers
+(661) 752-5863‬
+(833) 332-3666 
+(855) 878-3377
+
+
+Redirects
+http://freesgift.com/ - redirects to https://521-gifts.com/
+ http://copypaste123hbhsbf.gq/ - redirects to http://www.freenom.link/en/index.html?lang=en
+
+
+Scam Sites
 https://abby8210.wixsite.com/htrssa
 https://spinfortuna.com/ln/c7.hDnEYzxZS0eB_jrJkA2q8OY7AmBPJFQdy95mQfo0Fxn9ChKpI3mTa9jrRuYYNS7zRiqGs4eO_D2yNYZ6vxYQkwJ8fRZ1W3EKZgWLeqsXLclclVA6HZo6lxJ2sZyseDC1Lq.9KmCo7HXPAMqFAITPg_dxhPpF9b_dgyAB3u7.jsi3NJL.Wj94qh5YOTkv2yJFLjer2r_wJg4d7woBtoWsC73xoqpbeK9lKvw0OjFW5SQih1lgcfBJOTCX2XHNyo2M6pSFpQkfPHgZs7GbpzSJICJSahPrYKZQWWZsd5g3P3cAfC7gSPsVCLQRF5wbFgqiOlkGHg1gm_QKbn.MEMzweoymulJ8al8BA4G_1wLB0eSiSdcZVYyvVVeQEUe1kmYerEATnJQpJZRN_fH2nuRbsY5S4HMTUTlh_0ErO0cNcWgrsx.k9boacFDlQFxpSJnmgyrWX29D4NtiFrTdt2wqq.qqqq.qq
 https://pushwelcome.com/nrLJTRoNsU-c-cW1qc5T9xBy4evoG4UOtS0B_bxgRYA?cid=F1E773B0-1349-11EB-8A8B-B5FC2108D619&sid=72922&utm_campaign=NTY4ZwSkMwRD2uWtdA0xO3xgMjE0Np19#utm_source=glx_w10_0616_US_chrome_1238&utm_click=IHxzK3_Vfu5TPvsAyDrcquKihkCxUmst--iZ6gaz9-YeKXpMOEgc_4kZ-uSnOiUMJe1D62zpeQ2IvIAfmweJlRD6kxwQEZZacwkchjoEg9WxSofpvxPS38TeR_Wc_IkyHeoBWxGVCjaczk6t-S1QNogUzhjht5OA9MbuVPoKGPHNtVHi0_p02A8kwEZHSXv2tYH-3X65BHancF9XW3mRgQ
@@ -19,6 +36,10 @@ https://special-offer.0ndfls4hmp.top/flu/us/venmo/vk_roul/index.html?browser_nam
 https://claim-reward.0ndfls4hmp.top/custom_win/us/microsoft-surface-pro7/aprize/index.html?p1=https%3A%2F%2Fat.redstripes.club%2Fbcf439c8-b2e8-4ec8-99b9-8037c39b8de3%3Fplacement%3D15167567%26browser%3DSamsung%26browser%3DChrome%20Mobile%26os%3DAndroid%26country%3DUnited%20States%26region%3DRocklin%26isp%3DWave%20Broadband%26useragent%3DMozilla%2F5.0%20%28Linux%3B%20Android%207.1.2%3B%20SM-G955F%29%20AppleWebKit%2F537.36%20%28KHTML%2C%20like%20Gecko%29%20Chrome%2F72.0.3626.121%20Mobile%20Safari%2F537.36%26language%3D11%26subid%3Df4ffb6025b628e7c0d06efc0b19696da
 https://1.free-wins.com/2207-chat-paypal-adt-late-rbp/?campid=0938964b-0614-46d2-8d6b-71739a4acd2c&utm_source=ZPK&landerid=b082b3e9-6657-4b76-976e-63a3aad1065c&bv=Chrome%20Mobile%2072&lander=1305-intermediary-lander%20-%20%5BMSF%5D&pccid=dddvhk7mmb9mg5b2219pt0fg&zone_id=quebec-fib-p07l60d96&supply_id=&camp_id=&source=watchet-turtle&ua=lander&creative=45&ismsf=1&pathid=84215cb3-dd3b-1275-0a05-d74c509bec49&brand=walmart
 https://get.searchpdfconverterhd.com/?pid=58447&subid=72922&clickid=5921FC60-13CA-11EB-B3A1-192EF12C480F&did=0a79f249-0aca-41e4-9e15-38d145ff397d&pgs=1
+https://www.rewardzoneusa.com/?Flow=324FA50B-9BFD-D667-5508-2600D202E8636714D9A4&__cf_chl_jschl_tk__=aacae36bdbdec2f35d8ec55fe3f538f236c138a9-1605822243-0-AdfourXHZpZOyu50QrAUtU6anlYvP3M88RxETaih2-62JxwcxbQQbRK5PbUmt5vOckHAFph6CczqQ7tYuWvzpl7CAx9_JTX75uz0gEOTerLsaJtaDPPCdBOVvI0WYSxHZkM-h2IQoyDUHC3SnN5a9I2ZiJhBxGCzToWKiVKMYevUxIMo_35FK8EBAR4a19Ds3jYw7VFzEciD5Qe2IhsV00aCBmF1mNYNI5DhQCWYe9lXMN98iEMgVF4wCsY-StcORoXW3vE0IoC8jNdr-JRw6sZxd_pTgwWOZlM0qk7CuAvTySpKO0T-0iusph7jF1DrosP0nbgKUiuyKcEhSZC9NZA
+https://europrizes-abc.com/grab/grab4sweepsubEN2/index.html
+https://win-gift.net/?source=&lp=55&country=TR&cid=&sourceid=&campaignid=&cpc=&browser=&device=&language=
+https://survey.phshoppers10.info/old/
 
 
 For Sale
