@@ -13,7 +13,9 @@ Malware Samples
 
 Resources and Information Sites (not sorted)
 http://ww1.ca-shaw-phone.com/win/au/iinet/index2.php?ip=192.168.2.1&lpkey=15f67819596804cc54&uclick=xs46a6a9bl&sub1=20201120-0910-17c0-93f2-191c34d80002
-http://ww1.turboanalysis.net/survey/17683/source=565c4b03c479a2fe76159a1b/subid=565c4b03c479a2fe76159a1b&s1=/nrp=5e066c972a16d62a274d031d?sub1=20201120-0915-131e-883d-b6eb9b5e0990
+http://ww1.turboanalysis.net/survey/17683/source=565c4b03c479a2fe76159a1b/subid=565c4b03c479a2fe76159a1b&s1=/nrp=5e066c972a16d62a274d031d?sub1=20201120-0915-131e-883d-b6eb9b5e0990 
+http://crap.org/
+
 
 Error Pages
 https://start.book-district.com/au/o/epctinn7gohxxfbul1okhjb3eu30jr8et9lg6txbsh?ar_cid=5e17626bd4bfa900014a172f&ar_pid=20&nw_cid=1578590731.32-162750531-41447&nw_pid=apix34-chromeredirect.online&nw_fbp=&pf=&src=&gtm=
