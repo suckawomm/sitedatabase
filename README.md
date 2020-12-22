@@ -8,8 +8,6 @@ https://offersearch.info/b/?k=1874&pc=77987147&ct=27&b_tt=c_1874_0&st=irs%20debt
 http://stay.agency/
 http://musicalcompositionfly.com/
 
-Malware Samples
-
 
 Resources and Information Sites (not sorted)
 http://ww1.ca-shaw-phone.com/win/au/iinet/index2.php?ip=192.168.2.1&lpkey=15f67819596804cc54&uclick=xs46a6a9bl&sub1=20201120-0910-17c0-93f2-191c34d80002
@@ -72,9 +70,6 @@ Leaked Scammer Phone Numbers
 +91 1141047226
 8886829764
 
-Redirects
-http://freesgift.com/ - redirects to https://521-gifts.com/
- http://copypaste123hbhsbf.gq/ - redirects to http://www.freenom.link/en/index.html?lang=en
 
 
 Scam Sites
@@ -162,51 +157,12 @@ https://have.partners/
 http://have.plus/
 
 
-Utilities
-https://onlinesequencer.net/
-https://www.digminecraft.com/generators/give_weapon.php
-https://minecraft.tools/en/tellraw.php
-http://patorjk.com/software/taag/#p=display&f=Big&t=Type%20Something%20
-https://malwat.ch/
-https://www.bearaudiotool.com/
-https://www.gamergeeks.nz/apps/minecraft/mob-generator
-https://tempemail.co/
-https://instantdomainsearch.com/
-https://mcstacker.net/
-https://colorize.fun/en/minecraft
-http://www.typehere.co/
-https://blog.malwarebytes.com/detections/
-https://www.trash-mail.com/inbox/
-https://crafting.thedestruc7i0n.ca/
-
-
-DDoS
-https://freestresser.to/
-https://quez.in/
-https://databooter.to/booter
-https://www.stressthem.to/booter
-https://instant-stresser.com/login
-https://asylumstresser.to/hub
-https://stormbypass.cc/panel/login.php
-https://anonboot.com/hub
-https://www.vbooter.pw/booter/login.php
-
-
 Account Generators
 https://leak.sx/dispenser_other.php
 https://thealtening.com/
 https://mcleaks.net/
 http://easymc.io/
 https://freealts.pw/
-
-
-Hack APK
-https://www.happymod.com/
-https://an1.com/
-http://www.apkdlmod.com/
-http://www.appcake.net/
-https://modsapk.com/
-
 
 Online Games
 https://www.addictinggames.com/
